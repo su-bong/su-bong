@@ -1,5 +1,5 @@
-<p align="center"> ⟡　　about  me  !! </p>
-<p align="center"> 𓂃　　 name   ⋆   link  ◝ </p>
-<p align="center"> 　int  ;  whisper in pt 　　𝜚 </p>
+<p align="center"> ⟣　　izuku　　︵　　he 　/　 they </p>
+<p align="center"> 6teen  adhd  enfp-t  ✿ </p>
+<p align="center">i love　　making friends　　 ⟡　　int anytime ! </p>
 
-<p align="center"> <img width"550" height"400" src="https://64.media.tumblr.com/6bc2525b779762c8a8f901d535727cbd/c6f5badd205032df-80/s250x400/5a139660e67b3509f09e1e2b321477a1586ade2e.gifv"> </p>
+<p align="center"> <img width"550" height"400" src="https://64.media.tumblr.com/77be17cd98e94b7a1211777bd631e089/f0d1b08d9f6d9684-cd/s400x600/fd50eada6fc873aababe51a5b383f2f31b3df177.pnj"> </p>
