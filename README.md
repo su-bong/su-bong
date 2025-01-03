@@ -1,4 +1,4 @@
-<p align="center"> ⟣　　izuku　　︵　　he 　/　 they </p>
+<p align="center"> ⟣　　zuko　　︵　　he 　/　 they </p>
 <p align="center"> 6teen  adhd  enfp-t  ✿ </p>
 <p align="center">i love　　making friends　　 ⟡　　int anytime ! </p>
 
